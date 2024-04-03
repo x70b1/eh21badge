@@ -4,6 +4,10 @@
 
 Das Easterhegg 2024 in der OTH Regensburg ist zu Ende. So auch das Rabbit Chaos Adventure.
 
+## Badge
+<p align="center">
+  <img src="Media/pcbs.png">
+</p>
 
 ## Story
 
