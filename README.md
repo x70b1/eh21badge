@@ -13,7 +13,7 @@ Das Easterhegg 2024 in der OTH Regensburg ist zu Ende. So auch das Rabbit Chaos 
 ## Links
 
 * Der Abschluss-Talk auf [media.ccc.de](https://media.ccc.de/v/eh21-14-rabbit-chaos-adventure-closing)
-* Ein Beitrag übers Easterhegg und RCA im [Rabbit Radio](https://rabbitradio.de/sendungen/1-maisendung-klima/?t=22%3A36)
+* Ein Beitrag übers Easterhegg und RCA im [Rabbit Radio](https://rabbitradio.de/highlights/easterhegg/)
 
 
 ## Story
